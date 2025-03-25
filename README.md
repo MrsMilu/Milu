@@ -1,4 +1,4 @@
-## 👋 Hi there, I'm Milena, just call me Milu!
+## 👋 Hi there, I'm Milu!
 
 👩‍💻 Currently, I'm a trainee passionately working towards becoming a skilled frontend developer. Coding and design aren't just my career goals—they're my way of life. I love designing beautiful things, including my own life's journey! ✨ <br/>
 🎨 My favorite colors are shades of blue, pink, and purple. <br/>
